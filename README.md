@@ -1,7 +1,7 @@
 # 💫 About Me:
 💻 I'm currently studying
-<br> 🖥 In my free times i work for the group Nintendistas Portugal
-<br>🎥 I like watch animes and policial series <br>
+<br> 🖥 In my free times i work for the Nintendistas Portugal group
+<br>🎥 I like watch animes and police series <br>
 
 
 ## 🌐 Socials:
